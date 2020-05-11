@@ -1,2 +1,0 @@
-# Project-Makers
-Дипломники
